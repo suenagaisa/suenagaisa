@@ -6,7 +6,7 @@ Meu nome é Isabely Suenaga ✨
 - 💻 Estou me desenvolvendo na linguagem JavaScript
 - ✨ Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-  ### Você pode entrar em contato comigo :mailbox
+  ### Você pode entrar em contato comigo 📫
 
 00001147502328sp@al.educacao.sp.gov.br
 
