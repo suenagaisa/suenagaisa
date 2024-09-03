@@ -10,4 +10,4 @@ Meu nome é Isabely Suenaga ✨
 
 00001147502328sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/love-snoopy-snoop-dog-snoopy-love-gif-22073440)
+![](https://tenor.com/pt-BR/view/love-snoopy-snoop-dog-snoopy-love-gif-22073440)>
